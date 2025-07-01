@@ -12,6 +12,6 @@ Fluid , Bi(sexual) , Aro-spec . I do not mind any pronouns but love when you use
 Be sure to be nice to my family too. ✦
 <div align="center">
 
-!(https://freeimage.host/i/F7Sy7Uv)
+!
 
 </div>
