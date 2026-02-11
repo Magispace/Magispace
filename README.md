@@ -6,7 +6,7 @@
 
 </div>
 
-【 Free cuds + hides ! I do not mind.
+【 Free cuds + hides ! I don't mind.
 Be nice and I'll be nice. I'm be awkward, so be patient too.
 Fluid , Bi(sexual) , Aro-spec . I don't mind any pronouns but love when you use He/Him !
 Be sure to be nice to my family too. ➜
