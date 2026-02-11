@@ -21,8 +21,6 @@ Be sure to be nice to my family too. ➜
 
 <div align="center">
 
-" But could we be what we're meant to be? "
-" But could we be what we're meant to be?
-" I'm just about to beg you, please. " ✶
+" But could we be what we're meant to be? I'm just about to beg you, please. " ✶
 
 </div>
