@@ -16,7 +16,7 @@ Be sure to be nice to my family too. ➜
 
 </div>
 
-【 I'm usually at the blacksmith area (with my friends) or just usually wandering around in my persona skin(space cadet)! I don't have a schedule sadly. Check out my strawpage though 👀 (PLEASE!!) 
+【 I'm usually at the blacksmith area (with my friends) or just usually wandering around in my ivan bad things cos! I don't have a schedule sadly. Check out my strawpage though 👀 (PLEASE!!) 
 ➜ https://angelicmacabre.straw.page
 
 <div align="center">
