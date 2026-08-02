@@ -16,7 +16,7 @@ Be sure to be nice to my family too. ➜
 
 </div>
 
-【 I'm usually at the blacksmith area (with my friends) or just usually wandering around in my ivan bad things cos! I don't have a schedule sadly. Check out my strawpage though 👀 (PLEASE!!) 
+【 I'm usually at the blacksmith area (with my friends) or just usually wandering around in my verity cos! I don't have a schedule sadly. Check out my strawpage though 👀 (PLEASE!!) 
 ➜ https://angelicmacabre.straw.page
 
 <div align="center">
@@ -24,3 +24,5 @@ Be sure to be nice to my family too. ➜
 " But could we be what we're meant to be? I'm just about to beg you, please. " ✶
 
 </div>
+
+https://open.spotify.com/playlist/1xJRMwp43DEdHvJWtzVqBa?si=j5tXwTLcRKmlH-pOiNXIDg&utm_source=copy-link < Verity playlist
