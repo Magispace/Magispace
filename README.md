@@ -16,8 +16,8 @@ Be sure to be nice to my family too. ➜
 
 </div>
 
-【 I'm usually at the blacksmith area (with my friends) or just usually wandering around in my verity cos! I don't have a schedule sadly. Check out my strawpage though 👀 (PLEASE!!) 
-➜ https://angelicmacabre.straw.page
+【 I'm usually at the blacksmith area (with my friends) or just usually wandering around in my verity cos, the most red verity! I don't have a schedule sadly. Check out my strawpage though 👀 (PLEASE!!) 
+➜ https://gardenersguilt.straw.page
 
 <div align="center">
 
